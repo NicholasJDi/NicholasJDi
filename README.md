@@ -1,6 +1,6 @@
 Hi, I'm NicholasJDi. Im A Very Small Content Creator That Plays Too Much Minecraft :)
 
-I Enjoy Coding, Modding Minecraft, And   Playing Sandbox And Adventure Games!
+I Enjoy Coding, Modding Minecraft, And Playing Sandbox And Adventure Games!
 
 I Always Try To Do By Best With What I Have.
 
