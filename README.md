@@ -2,7 +2,7 @@
 
 I Enjoy Coding, Modding Minecraft, And Playing Sandbox And Adventure Games!
 
-I'm The Creator Of JDi Studios, A Discord Server Oriented Around Minecraft And Coding.
+I'm The Creator Of Legend Of The Silver Moon, (LOTSM) More On That Soon. :D
 
 I'm A Starting Game Dev With Little To None Experience But I Know A Lot About Game Design
 
