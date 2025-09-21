@@ -8,4 +8,4 @@ I'm A Starting Game Dev With Little To None Experience But I Know A Lot About Ga
 
 I Am By No Means Good At What I Do But I Try To Do My Best.
 
-Contact Me At: nicholas-jdi@outlook.com Or In My Discord https://discord.gg/Q6p3Sxatwj
+Contact Me At: Business.NicholasJDi@outlook.com Or In My Discord: https://discord.gg/Q6p3Sxatwj
