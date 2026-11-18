@@ -1,11 +1,9 @@
- Hi, I'm NicholasJDi. Im A Guy That Plays Too Much Minecraft.
+ Hi, I'm NicholasJDi. I'm a Guy That Plays too much Minecraft.
 
-I Enjoy Coding, Modding Minecraft, And Playing Sandbox And Adventure Games!
+I enjoy Coding, Modding Minecraft, and playing Sandbox and Adventure Games!
 
-I'm The Creator Of Legend Of The Silver Moon, (LOTSM) More On That Soon. :D
+I'm the Creator of Legend Of The Silver Moon, (LOTSM) more on that soon. :D
 
-I'm A Starting Game Dev With Little To None Experience But I Know A Lot About Game Design
+I'm a starting Game Dev with little to none experience, but I know a lot about Game Design
 
-I Am By No Means Good At What I Do But I Try To Do My Best.
-
-Contact Me At: Business.NicholasJDi@outlook.com Or In My Discord: https://nicholasjdi.github.io/discord
+Contact Me at: Business.NicholasJDi@outlook.com or in my Discord: https://nicholasjdi.dev/discord
